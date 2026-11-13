@@ -54,7 +54,7 @@ I enjoy working on hands-on cybersecurity projects, security monitoring, threat 
 
 ### 🤝 Let's Connect
 
-- LinkedIn: linkedin.com/in/thenuki-balasooriya-6691b9350/
+- LinkedIn: (https://www.linkedin.com/in/thenuki-balasooriya-6691b9350/)
 - GitHub: (https://github.com/thenuki-balasooriya)
 
 ---

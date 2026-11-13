@@ -1,4 +1,4 @@
-# Hi, I'm Thenu Balasooriya! 👋
+# Hi, I'm Thenuki Balasooriya! 👋
 
 ### Cybersecurity Engineering Undergraduate | Aspiring Cybersecurity Engineer
 
